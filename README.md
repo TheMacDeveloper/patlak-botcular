@@ -1,6 +1,6 @@
 # patlak-botcu-papaz
 
-
+# SPAM KORUMASIZ PAPAZCIK
 
  # Bazı Görseller :)  
 
