@@ -1,7 +1,7 @@
 # patlak-botcu-papaz
 
 # SPAM KORUMASIZ PAPAZCIK
-
+aptal botcular birde github ifşa açmışlar beceriksizliklerini göztermek için mal @mk bunlar bunlara bot yaptıran mal zaten :D
  # Bazı Görseller :)  
 
 <img  src="https://cdn.discordapp.com/attachments/1181682031986487387/1198114695039688784/image.png?ex=65bdba43&is=65ab4543&hm=bf320a55868b1aea33e3a1d2bc81018239586621e57ea8ac9da6fad0aadf432b&">
