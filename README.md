@@ -1,14 +1,42 @@
-# patlak-botcu-papaz
+# discord-tr-patlak-botcular
 
-# SPAM KORUMASIZ PAPAZCIK
-aptal botcular birde github ifşa açmışlar beceriksizliklerini göztermek için mal @mk bunlar bunlara bot yaptıran mal zaten :D
- # Bazı Görseller :)  
+Copy-Paste Botcular (sahiplenenler)
 
-<img  src="https://cdn.discordapp.com/attachments/1181682031986487387/1198114695039688784/image.png?ex=65bdba43&is=65ab4543&hm=bf320a55868b1aea33e3a1d2bc81018239586621e57ea8ac9da6fad0aadf432b&">
-<img  src="https://cdn.discordapp.com/attachments/1195510888577388675/1198115919059243048/image.png?ex=65bdbb67&is=65ab4667&hm=24f9dd3375d36e598e07c22fd606b79cada0fef491c889535b392e611e801767&">
-<img  src="https://cdn.discordapp.com/attachments/1195510888577388675/1198116516013559888/image.png?ex=65bdbbf5&is=65ab46f5&hm=ef300f080ff39eba1777acbe4dadbeb6f5c2abb3b65466c8450b3b380914c0e7&">
+# Clydev
+Bu işte taliska yapmış elemanlar çalıp bide 20k isteyende ne bilim yani :D
 
-# Alt Yapısına Girip Patlattım Sunucu
+<img  src="https://i.imgur.com/LPlClMi.png"> <img  src="https://i.imgur.com/WtrmcSA.png"> 
+<img  src="https://i.imgur.com/tTHa29z.png">
 
- https://youtu.be/kjmBEkjiQUM?si=L6PwY96omGkXULRS
- 
+<img  src="https://i.imgur.com/qpDMA2V.png">
+
+# Çakma Papazcık (ancientchavo)
+Bu işte ozi altyapı alıpta yardım menüsünü bile eklemeyen ne bileyim yani :D
+
+<img  src="https://i.imgur.com/wy5RrmP.png">
+
+<img  src="https://i.imgur.com/4iNwV2d.png">
+<img  src="https://i.imgur.com/jiqS4x4.png">
+<img  src="https://i.imgur.com/rxMUjxR.png">
+<img  src="https://i.imgur.com/HLY6Zr8.png">
+
+Hatta ben yapmadığım halde ben ban yedim :D
+
+# Mini Terorista
+Ramaldır papazdır altyapılarını kullanan bi s2m bilmeyen bi **ÇOCUK** emoji hatasını bile çözemiyor botcuyum diye geziniyor :D
+VDS parası veremiyor
+
+<img  src="https://i.imgur.com/aI5ghwS.png">
+
+<img  src="https://i.imgur.com/qi3Ewk3.png">
+<img  src="https://i.imgur.com/JWZXwZk.png">
+<img  src="https://i.imgur.com/UYEcpZC.png">
+<img  src="https://i.imgur.com/IU1X52L.png">
+
+# Ramalcik
+Yorum bile yapmıyorum :D
+
+<img  src="https://i.imgur.com/pClZiKU.png">
+<img  src="https://i.imgur.com/DkcgEM1.png">
+
+https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/b5c4f55a-0b0f-41ab-ad13-d8204bfb46f6
