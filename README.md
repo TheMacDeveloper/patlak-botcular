@@ -28,6 +28,8 @@ VDS parası veremiyor
 
 <img  src="https://i.imgur.com/aI5ghwS.png">
 
+https://cdn.discordapp.com/attachments/1197120969672769596/1215186525306757170/Untitled_video_3.mp4?ex=65fbd5a4&is=65e960a4&hm=3c8f3ef46f52ef162c0b3a365d09391dcc2f3083a780f5265eac1181e33c62eb&
+
 <img  src="https://i.imgur.com/qi3Ewk3.png">
 <img  src="https://i.imgur.com/JWZXwZk.png">
 <img  src="https://i.imgur.com/UYEcpZC.png">
